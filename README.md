@@ -1,6 +1,6 @@
 Привет всем! Меня зовут Анна. 👩🏼 
 
-Я ищу удаленную работу 🌏
+Я ищу свою первую работу в IT 💻
 
 Увлекаюсь путешествиями и иностранными языками🇷🇺🇺🇸🇨🇳 
 
@@ -16,7 +16,7 @@
 
 Hi, I’m Anna! 👩🏼 
 
-I'm looking for a remote job in a multicultural company 🌏
+I'm looking for my first job in IT 💻
 
 I’m interested in travelling and languages 🇷🇺🇺🇸🇨🇳 
 
